@@ -11,4 +11,4 @@ Para instalarlos deberás entrar en la aplicación "FBI" > Instalación remota..
 
 https://drive.google.com/file/d/1FTXZVdvMAJkhCNIyYpBCpOWLBtydOLur/view?usp=drivesdk
 
-![Image text](https://github.com/El-magoXD/CIAS-3DS/commit/856207c4d235689b835efe898b5db506123674a2#diff-debabce8cd47861f2fca067bc3bb907d27c15ecb9a22129b37bb8a3db0bd16dd)
+![Image text](https://raw.githubusercontent.com/El-magoXD/CIAS-3DS/856207c4d235689b835efe898b5db506123674a2/57CA34D0-165B-487C-9A8A-20D7756DF77E.png)
