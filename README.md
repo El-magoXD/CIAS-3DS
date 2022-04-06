@@ -6,6 +6,7 @@ Debajo encontrarás varios juegos con sus respectivos códigos QR y su enlace.
 
 Para instalarlos deberás entrar en la aplicación "FBI" > Instalación remota...
 
+# CIAs
 
 ## Mario Kart 7
 
