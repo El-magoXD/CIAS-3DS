@@ -8,6 +8,10 @@ Para instalarlos deberás entrar en la aplicación "FBI" > Instalación remota..
 
 # CIAs
 
-## Mario Kart 7
+## FTPD
+
+https://www.dropbox.com/s/javho09l75vb8cx/ftpd.cia?dl=0
+
+
 
 
