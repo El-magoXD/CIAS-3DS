@@ -14,11 +14,8 @@ https://www.dropbox.com/s/javho09l75vb8cx/ftpd.cia?dl=0
 
 ![image](https://user-images.githubusercontent.com/60822015/162809055-ec31a632-2615-439b-a52c-97aa02b1e153.png)
 
+## Super Smash Bros
 
-## Mario Kart 7
+https://www.dropbox.com/s/9in7kn8lp8r8cqa/Super%20Smash%20Bros%203DS%20%28EUR%29%203dsandcias.blogspot.com.cia?dl=0
 
-https://www.dropbox.com/s/invlof4ogyjc41f/Mario%20Kart%207%201.1%20EUR.cia?dl=0
-
-![image](https://user-images.githubusercontent.com/60822015/162809361-7c1da3d8-091d-40e7-a14e-7d92726cb4fe.png)
-
-
+![image](https://user-images.githubusercontent.com/60822015/162813276-bf44f9e4-9671-4842-8270-9e2e80bc7f4f.png)
