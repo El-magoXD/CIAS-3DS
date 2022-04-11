@@ -14,3 +14,11 @@ https://www.dropbox.com/s/javho09l75vb8cx/ftpd.cia?dl=0
 
 ![image](https://user-images.githubusercontent.com/60822015/162809055-ec31a632-2615-439b-a52c-97aa02b1e153.png)
 
+
+## Mario Kart 7
+
+https://www.dropbox.com/s/invlof4ogyjc41f/Mario%20Kart%207%201.1%20EUR.cia?dl=0
+
+![image](https://user-images.githubusercontent.com/60822015/162809361-7c1da3d8-091d-40e7-a14e-7d92726cb4fe.png)
+
+
