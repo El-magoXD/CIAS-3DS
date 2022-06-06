@@ -24,6 +24,6 @@ https://www.dropbox.com/s/9in7kn8lp8r8cqa/Super%20Smash%20Bros%203DS%20%28EUR%29
 
 Notas: Hay algunas cosas que no funcionan, como el modo online, o crear un grupo (si deja unirse). Pero esta es la versión que he encontrado más estable ya que no se sale en medio de la partida.
 
-https://www.dropbox.com/s/9in7kn8lp8r8cqa/Super%20Smash%20Bros%203DS%20%28EUR%29%203dsandcias.blogspot.com.cia?dl=0
+https://www.dropbox.com/s/pvuj11v3l8g22v1/Mario%20Kart%207-EUR-Multi-8-www.juegos-nds-gratis.com.cia?dl=0
 
-![image](https://user-images.githubusercontent.com/60822015/162813276-bf44f9e4-9671-4842-8270-9e2e80bc7f4f.png)
+![image](https://user-images.githubusercontent.com/60822015/172247662-2bea40dc-2c77-4fe8-8334-6bc25c580302.png)
